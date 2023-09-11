@@ -1,4 +1,4 @@
-# meyrissa web3 profile
+# meyrissa web3 profiles
 - 0xrissa (1).jpg
 - 0xrissa (2).jpg
 - 0xrissa (3).jpg
